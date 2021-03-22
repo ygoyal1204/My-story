@@ -1,3 +1,5 @@
+Characters - Lion, Monkey
+
 The Monkey and the lion
 
 There was a lion in the forest. 
